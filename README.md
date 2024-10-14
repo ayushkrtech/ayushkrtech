@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ayushkrtech
 - 👀 I’m interested in developing python projects
 - 🌱 I’m currently learning c language
-- 📫 How to reach me https:/t.me/ayushc8der
+- 📫 How to reach me https://www.instagram.com/ayus.h_24
 
 
 <!---
